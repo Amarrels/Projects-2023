@@ -1,3 +1,6 @@
+https://docs.google.com/presentation/d/1w_E3Sr8pSfn8KHksKOnrR4YF9ezHVzibRwmsTI8UUQI/edit?usp=sharing
+
+
 # hAIr
 <img src = "https://www.cutegirlshairstyles.com/wp-content/uploads/2020/04/Hairtype_thumbnail.png">
 
