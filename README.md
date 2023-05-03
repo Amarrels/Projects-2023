@@ -1,4 +1,4 @@
-# Hair Texture ID 
+# hAIr
 <img src = "https://www.cutegirlshairstyles.com/wp-content/uploads/2020/04/Hairtype_thumbnail.png">
 
 ## What to Know about Different Hair Types
